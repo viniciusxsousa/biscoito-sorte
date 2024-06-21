@@ -13,3 +13,7 @@ Este projeto foi desenvolvido com o objetivo de treinar e aprimorar habilidades 
 
 
 ### :desktop_computer: Previa
+
+
+https://github.com/viniciusxsousa/biscoito-sorte/assets/81489425/fe61e3b3-f753-49e7-a5e9-36a96285bcd0
+
